@@ -3,4 +3,7 @@
 #### Хобби:
 
 
+![alt-текст](hhttps://media.discordapp.net/attachments/673123550504288276/778602661641060362/b6735c62z2.jpg?width=1208&height=679 "Необязательный титул")
+
+
  
